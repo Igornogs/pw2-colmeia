@@ -1,1 +1,1 @@
-# pw2-colmeia
+# Igor da Silva Nogueira e Guilherme Barreto Bernardoni
